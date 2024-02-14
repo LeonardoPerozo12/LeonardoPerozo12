@@ -8,6 +8,9 @@ Some other stuff I really enjoy are:
   Music, playing or listening.
   Videogames
   Hanging out with my friends
+  Math
 
 This is my Mail if you need to reach me:
   leonardo.perozzof@gmail.com
+
+I'm always up to learning some cool stuff
